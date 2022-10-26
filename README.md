@@ -10,3 +10,5 @@
 Visit my [Linkedin](https://www.linkedin.com/in/marco-pannone-618b69b1/) or my [ResearchGate](https://www.researchgate.net/profile/Marco-Pannone) for more info.
 
 Don't forget to follow me on [Twitter](https://twitter.com/marcopannone95) too! 
+
+Don't hesitate to get in contact with me, I am always open on sharing ideas, learning something new and expanding my network! 🌎🧬
